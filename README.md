@@ -1,6 +1,6 @@
 # Dear MOJANG & Microsoft Team
 
-*最后更新(last update)：2017/11/03*
+*用户MinecraftChinaPlayer最后更新时间：2017/11/03*
 
 
 Written in front：
